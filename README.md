@@ -1,2 +1,2 @@
 # artofuseless.github.io
-Art Of Useless
+Art Of Use Less
